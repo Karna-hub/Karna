@@ -1,7 +1,11 @@
 Self Ordering Kiosk Why Choose at Sirixo
 
-Self ordering kiosk streamlines the ordering process, Reducing wait times and errors while increasing guest saSelf Ordering Kiosk Why Choose at Sirixo
-tisfaction, while the company can offer free menu management, a free e-commerce website for orders online, and free Google review table cards to further efficiency and online visibility for an improved guest experience.
+Self-ordering kiosks streamline the ordering process, reducing wait times and errors while increasing guest satisfaction. The company also offers free menu management, a free e-commerce website for online orders, and free Google review table cards to enhance efficiency and boost online visibility, delivering an improved guest experience.
+
+Reach us for a free demo!
+Website: https://sirixo.com/solutions/self-ordering-kiosk/
+Contact Number: 9988 223 919
+Email: info@sirixo.com
 
 What is a Self Ordering Kiosk?
 
